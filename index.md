@@ -44,7 +44,7 @@ with <3, itsN1X (cc0) 2017.
 All rights reserved.
 
 Grateful to all *UNIX # and my Alma Maters.
-Vital stats:
+
 
     Version served: v1.2.56.
     ET: #D7676
