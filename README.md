@@ -1,1 +1,3 @@
-<a href="https://twitter.com/intent/tweet?screen_name=itsN1X&ref_src=twsrc%5Etfw" class="twitter-mention-button" data-size="large" data-related="@N1Xbot" data-show-count="true">Tweet to @itsN1X</a><script async src="//platform.twitter.com/widgets.js" charset="utf-8"></script>
+<http://N1X.site>
+or
+<http://n1xsite.github.io>
