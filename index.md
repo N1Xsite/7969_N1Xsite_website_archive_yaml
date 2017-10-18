@@ -54,6 +54,8 @@ Grateful to all *UNIX # and my Alma Maters.
 © https://N1X.site
 <br>Up, What’s next?
 <br>with <3
-<br>~itsN1X<hr>
+<br>~itsN1X
+---
 
 # (C) 2017 N1X.site
+<a href="https://twitter.com/itsN1X?ref_src=twsrc%5Etfw" class="twitter-follow-button" data-size="large" data-show-screen-name="false" data-dnt="true" data-show-count="true">Follow @itsN1X</a><script async src="//platform.twitter.com/widgets.js" charset="utf-8"></script>
