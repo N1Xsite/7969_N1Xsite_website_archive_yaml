@@ -46,8 +46,8 @@ All rights reserved.
 Grateful to all *UNIX # and my Alma Maters.
 
 
-    Version served: v1.2.56.
-    ET: #D7676
+    Version served: v1.0.56.
+    ET: #D7697
     Created: 01-08-2013t1500+0530
     Updated: 18-10-2017t0153+0530
 
