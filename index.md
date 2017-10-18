@@ -27,14 +27,21 @@ Also, ALSO: $ YOUR IP has been recorded (by me, i believe) and i can ^ALSO$ get 
 ---
 # HOW MAY YOU HELP YOU?
 Write emotions incessantly to my emailbox : 1by0 [at] protonmail [dotcom] or here at feedforward@n1x.site -- i am mostly "empty-minded" and can follow conversations right from the blue #securities to the green #security spectrum (actually, you.. nag)
+---
+
+## A note on HIStories : Cases for the curious.
+As heard, reknownked am=nd existential since after 20th Century A.D., networking { with // on // at }   : : _ : :
+    -   <http://N1X.website>    Since 2013 till late 2016
+    -   <http://itsN1X.ml>  From 2017 Feb through 2017 May.
+    -   <http://itsN1X.net>  During 2011 summer, and through 2013 August rush.
 
 ---
+
 ## __Good -at- Nights__ (X (X
 with <3, itsN1X (cc0) 2017.
 
 ---
 All rights reserved.
-© 2017 NIKHIL PANDITA
 
 Grateful to all *UNIX # and my Alma Maters.
 Vital stats:
@@ -45,10 +52,8 @@ Vital stats:
     Updated: 18-10-2017t0153+0530
 
 © https://N1X.site
-Up, What’s next?
-with <3
-~itsN1X
-
----
+<br>Up, What’s next?
+<br>with <3
+<br>~itsN1X<hr>
 
 # (C) 2017 N1X.site
