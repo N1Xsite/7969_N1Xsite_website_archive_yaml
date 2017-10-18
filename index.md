@@ -1,4 +1,4 @@
-# Hey, this is N1X - A L))))NG HALOO)))))))0000
+# Hey, this is N1X.site - A L))))NG HALOO)))))))0000 from XenoN -921 !
 
 
 ---
@@ -31,9 +31,9 @@ Write emotions incessantly to my emailbox : 1by0 [at] protonmail [dotcom] or her
 
 ## A note on HIStories : Cases for the curious.
 As heard, reknownked am=nd existential since after 20th Century A.D., networking { with // on // at }   : : _ : :
-    -   <http://N1X.website>    Since 2013 till late 2016
-    -   <http://itsN1X.ml>  From 2017 Feb through 2017 May.
-    -   <http://itsN1X.net>  During 2011 summer, and through 2013 August rush.
+    *   <http://N1X.website>    Since 2013 till late 2016
+    *   <http://itsN1X.ml>  From 2017 Feb through 2017 May.
+    *   <http://itsN1X.net>  During 2011 summer, and through 2013 August rush.
 
 ---
 
@@ -55,7 +55,7 @@ Grateful to all *UNIX # and my Alma Maters.
 <br>Up, What’s next?
 <br>with <3
 <br>~itsN1X
----
+
 
 # (C) 2017 N1X.site
 <a href="https://twitter.com/itsN1X?ref_src=twsrc%5Etfw" class="twitter-follow-button" data-size="large" data-show-screen-name="false" data-dnt="true" data-show-count="true">Follow @itsN1X</a><script async src="//platform.twitter.com/widgets.js" charset="utf-8"></script>
