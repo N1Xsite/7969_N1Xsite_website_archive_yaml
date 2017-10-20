@@ -25,6 +25,9 @@ Also, ALSO: $ YOUR IP has been recorded (by me, i believe) and i can ^ALSO$ get 
 # Oh! I,
 ' #Securities #Security #Avionics #Ballgames #CivilMARS #STREET #HTTPS #Trance #openGovt #SrBeckham #Auteuil #Absinthe #blockchain #PeriodicTable #Equities #Aprilla and #objC (sometimes i ba$# #Haskell, but no don't ask - C, C# and C++ corely) 
 
+### And then aswell, 
+my [NEWS FEEDS](NewsFEEDforN1Xsite)
+
 ---
 # HOW MAY YOU HELP YOU?
 Write emotions incessantly to my emailbox : 1by0 [at] protonmail [dotcom] or here at feedforward@n1x.site -- i am mostly "empty-minded" and can follow conversations right from the blue #securities to the green #security spectrum (actually, you.. nag)
