@@ -26,20 +26,14 @@ Also, ALSO: $ YOUR IP has been recorded (by me, i believe) and i can ^ALSO$ get 
 ' #Securities #Security #xKcd #boson #Avionics #Ballgames #CivilMARS #STREET #vector-scalables #HTTPS #Trance #openGovt #SrBeckham #Auteuil #Tensors #ch4n #Absinthe #blockchain #PeriodicTable #Ajja #Equities #Aprilla #objC #MAME #psuedoanarchy #yLOL #mastadon
 
 ### And then aswell, 
-my [NEWS FEEDS](NewsFEEDforN1Xsite)
+my [NEWS FEEDS](NewsFEEDforN1Xsite) and [ ## TBTIRT ](https://twitter.com/search?q=TBTIRT) and [ News about me ](http://google.com/search?q=itsn1x)
 
 ---
+
 ### HOW MAY YOU HELP YOU?
 Write emotions incessantly to my emailbox : 1by0 [at] protonmail [dot] com or here at feedforward [at] n1x [dot] site -- i am mostly "empty-minded" and can follow conversations right from the blues #securities to damn the green #security spectrum (actually, you.. bag)
 ---
-
-## A note on HIStories : Cases for the curious.
-As heard, reknownked am=nd existential since 2005 years after 20th Century A.D., networking { with // on // at }   : : _ : :
-<li> *   [http://N1X.website ](.)    Since 2013 till late 2016
-<li> *   [http://itsN1X.ml ](.) From 2017 Feb through 2017 May.
-<li> *   [http://itsN1X.net ](.)  During 2011 summer, and through 2013 August rush.
-
----
+ 
 
 ## __Good -at- Nights__ (X (X
 XeMC, itsN1X & The bt-army
