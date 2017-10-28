@@ -23,7 +23,7 @@ Also, ALSO: $ YOUR IP has been recorded (by me, i believe) and i can ^ALSO$ get 
 ---
 
 # Oh! I lie, like as in
-' #Securities #Security #Avionics #Ballgames #CivilMARS #STREET #vector-scalables #HTTPS #Trance #openGovt #SrBeckham #Auteuil #Tensors #Absinthe #blockchain #PeriodicTable #Equities #Aprilla #objC #MAME #psuedoanarchy
+' #Securities #Security #xKcd #boson #Avionics #Ballgames #CivilMARS #STREET #vector-scalables #HTTPS #Trance #openGovt #SrBeckham #Auteuil #Tensors #Absinthe #blockchain #PeriodicTable #Equities #Aprilla #objC #MAME #psuedoanarchy #LEGO
 
 ### And then aswell, 
 my [NEWS FEEDS](NewsFEEDforN1Xsite)
