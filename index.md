@@ -3,21 +3,21 @@
 ---
 
 ### Welcome to my webspace baby <3
-p.s. i keep myself on 
+p.s. LYNX keep on RTFM, ikr.. hit the man pages.
 `
 ^setmode=MODE666 --transparent$ ~#:
 `
 funny you're the broken one and i'm the only one to make you say it.
 ---
 
-### But
+#### But
 you just got to know me! NEVER guess who I could be ;)
 They're watching. They're logging.
-Oh did I mention they friends?
+Oh did I mention they family?
 ---
 
-Also, ALSO: $ YOUR THINGS $ have been recorded (by me, i believe).
-And, AND i can ^ALSO$ get nasty inasmuch if you plan likewise.
+Also, ALSO: $ YOUR PUBLIC THINGS $ have been recorded (by me, i believe).
+And, AND & i can ^ALSO$ get nasty inasmuch if you plan likewise.
 ---
 
 # LINKS
@@ -25,25 +25,25 @@ And, AND i can ^ALSO$ get nasty inasmuch if you plan likewise.
 ---
 
 # Oh! I lie, like, loud as in
-' #Securities #Security #xKcd #boson #Avionics #Ballgames #CivilMARS #STREET #vector-scalables #HTTPS #Trance #openGovt #SrBeckham #Auteuil #Tensors #ch4n #Absinthe #blockchain #PeriodicTable #Kaikkialla #Equities #Aprilla1300RR #objC #MAME #psuedoanarchy #yLOL #networkTech #TBTIRT
+#Securities #Security #xKcd #boson #Avionics #Ballgames #CivilMARS #STREET #vector-scalables #HTTPS #Trance #openGovt #SrBeckham #Auteuil #Tensors #ch4n #USDNRW #Absinthe #blockchain #PeriodicTable #MaaS #Kaikkialla #Equities #Aprilla1300RR #objC #MAME #psuedoanarchy #yLOL #networkTech #TBTIRT #chaosK-Theory #IN #ALLin #XeMC #tXtRiG
 
 ### And then aswell, 
 my [NEWS FEEDS](NewsFEEDforN1Xsite) and [ #tag #TBTIRT ](https://twitter.com/search?q=TBTIRT) and [ News about me ](http://google.com/search?q=itsn1x)
 
 ---
 
-### HOW MAY YOU HELP YOU?
-Write emotions incessantly to my emailbox : 1by0 [at] protonmail [dot] com or here at feedforward [at] n1x [dot] site -- i am mostly "empty-minded" and can follow conversations right from the blues #securities to damn the green #security spectrum (actually, you.. bag)
+### HOW MAY I HELP YOU?
+Write emotions incessantly to my emailbox : 1by0 [at] protonmail [dot] com (actually, you.. nm)
 ---
 
 # Disclaimer:
-We shall meet. There & then. I, an Nikhil, quench the K, the static.
+We shall meet. There & then. I, an Nikhil, quenching the K, the static.
 
-#### Requests pertaining DMCA to my emailbox above.
+#### Requests pertaining 'HELP' to my emailbox above.
  
 
-## __Good -eT- Nights__ (X (X
-XeMC, itsN1X & The bt-army
+## __Good-eTTe-Nights__ (X (X
+XeMC, itsN1X, P52 & The bt-army
 (C) 2017. #N1Xfam
 
 ---
