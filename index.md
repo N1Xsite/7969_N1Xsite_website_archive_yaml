@@ -4,14 +4,14 @@
 
 ### Welcome to my webspace baby <3
 p.s. LYNX keep on RTFM, ikr.. hit the man pages.
-`
+`  
 ^setmode=MODE666 --transparent$ ~#:
-`
+`  
 funny you're the broken one and i'm the only one to make you say it.
 ---
 
 #### But
-you just got to know me! NEVER guess who I could be ;)
+you just got to know me! NEVER guess who or where I could be ;)
 They're watching. They're logging.
 Oh did I mention they family?
 ---
@@ -24,8 +24,8 @@ And, AND & i can ^ALSO$ get nasty inasmuch if you plan likewise.
 [my github](http://github.com/itsn1x), [14BME0133](http://14bme0133.github.io), [RANTS](http://twitter.com/itsn1x), professional [summary](http://linkedin.com/in/itsn1x), and my <3 [ #SCN1X ](http://soundcloud.com/itsn1x).
 ---
 
-# Oh! I lie, like, loud as in
-#Securities #Security #xKcd #boson #Avionics #Ballgames #CivilMARS #STREET #vector-scalables #HTTPS #Trance #openGovt #SrBeckham #Auteuil #Tensors #ch4n #USDNRW #Absinthe #blockchain #PeriodicTable #MaaS #Kaikkialla #Equities #Aprilla1300RR #objC #MAME #psuedoanarchy #yLOL #networkTech #TBTIRT #chaosK-Theory #IN #ALLin #XeMC #tXtRiG
+# Oh! I _
+#Securities #Security #xKcd #boson #Avionics #Ballgames #CivilMARS #STREET #vector-scalables #HTTPS #Trance #openGovt #SrBeckham #Auteuil #STOCKH #TensorII #ch4n #USDNRW #Absinthe #blockchain #PeriodicTable #MaaS #Kaikkialla #Equities #Aprilla1300RR #US-Sr #Dim10 & #Dim118,#objC #MAME #psuedoanarchy #yLOL #networkTech #TBTIRT #chaosK-Theory #IN #ALLin #XeMC #tXtRiG
 
 ### And then aswell, 
 my [NEWS FEEDS](NewsFEEDforN1Xsite) and [ #tag #TBTIRT ](https://twitter.com/search?q=TBTIRT) and [ News about me ](http://google.com/search?q=itsn1x)
