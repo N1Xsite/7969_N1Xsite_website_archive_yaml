@@ -25,7 +25,7 @@ And, AND & i can ^ALSO$ get nasty inasmuch if you plan likewise.
 ---
 
 # Oh! I _
-#Securities #Security #xKcd #boson #Avionics #Ballgames #CivilMARS #STREET #vector-scalables #HTTPS #Trance #openGovt #SrBeckham #Auteuil #STOCKH #TensorII #ch4n #USDNRW #Absinthe #blockchain #PeriodicTable #MaaS #Kaikkialla #Equities #Aprilla1300RR #US-Sr #Dim10 & #Dim118,#objC #MAME #psuedoanarchy #yLOL #networkTech #TBTIRT #chaosK-Theory #IN #ALLin #XeMC #tXtRiG
+#Securities #Security #xKcd #boson #Avionics #Ballgames #CivilMARS #STREET #vector-scalables #bt-ARMY #HTTPS #Trance #openGovt #SrBeckham #Auteuil #STOCKH #TensorII #ch4n #USDNRW #Absinthe #blockchain #PeriodicTable #MaaS #Kaikkialla #Equities #Aprilla1300RR #US-Sr #Dim10 & #Dim118,#objC #MAME #psuedoanarchy #yLOL #networkTech #TBTIRT #chaosK-Theory #IN #ALLin #XeMC #tXtRiG
 
 ### And then aswell, 
 my [NEWS FEEDS](NewsFEEDforN1Xsite) and [ #tag #TBTIRT ](https://twitter.com/search?q=TBTIRT) and [ News about me ](http://google.com/search?q=itsn1x)
@@ -40,6 +40,7 @@ Write emotions incessantly to my emailbox : 1by0 [at] protonmail [dot] com (actu
 We shall meet. There & then. I, an Nikhil, quenching the K, the static.
 
 #### Requests pertaining 'HELP' to my emailbox above.
+2017-11-17 at 05:30, PM IST : 'my baby is borne, N1Xborn!'
  
 
 ## __Good-eTTe-Nights__ (X (X
