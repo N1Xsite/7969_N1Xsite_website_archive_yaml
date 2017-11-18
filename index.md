@@ -4,10 +4,11 @@
 
 ### Welcome to my webspace baby <3
 p.s. LYNX keep on RTFM, ikr.. hit the man pages.
-`  
+`
 ^setmode=MODE666 --transparent$ ~#:
-`  
-funny you're the broken one and i'm the only one to make you say it.
+`
+
+'tis funny you're the broken one: and i'm the only one to make you say it.
 ---
 
 #### But
@@ -57,7 +58,7 @@ Grateful 'ONLY' to all \*UNIX, \*# and my Alma Maters.
     Version served: v1.0.56.
     ET: #D7697
     Created: 01-08-2013t1500+0530
-    Updated: 18-10-2017t0153+0530
+    Updated: 18-11-2017t1053+0530
 
 © https://N1X.site
 <br>Up, What’s next?
