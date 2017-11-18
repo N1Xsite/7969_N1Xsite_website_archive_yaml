@@ -7,7 +7,7 @@ p.s. LIONS keep on RTFM, ikr.. hit the man pages.
 `^setmode=MODE666 --transparent$ ~@#:
 `
 
-'tis funny you're the broken one: and i'm the only one to make you say it.
+'tis funny you're the broken one: & i'm the only 1 to make you say it.
 ---
 
 #### But
@@ -54,7 +54,7 @@ All rights reserved.
 Grateful 'ONLY' to all \*UNIX, \*# and my Alma Maters.
 
 
-    Version served: v1.0.56.
+    Version served: v77.42.3
     ET: #D7697
     Created: 01-08-2013t1500+0530
     Updated: 18-11-2017t1053+0530
