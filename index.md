@@ -21,7 +21,7 @@ And, AND & i can ^ALSO$ get nasty inasmuch if you plan likewise.
 ---
 
 # LINKS
-[my github](http://github.com/itsn1x), [14BME0133](http://14bme0133.github.io), [RANTS](http://twitter.com/itsn1x), professional [summary](http://linkedin.com/in/itsn1x), and my <3 [ #SCN1X ](http://soundcloud.com/itsn1x).
+[my .starrs/universe](http://github.com/itsn1x), [14BME0133](http://14bme0133.github.io), [RANTS](http://twitter.com/itsn1x), professional [summary](http://linkedin.com/in/itsn1x), and my <3 [ #SCN1X ](http://soundcloud.com/itsn1x).
 ---
 
 # Oh! I _
@@ -55,7 +55,11 @@ Grateful 'ONLY' to all \*UNIX, \*# and my Alma Maters.
 
 
     Version served: v77.42.3
-    ET: #D7697
+    ET: #7728
+    ETT: #0937
+    ETX: #7728
+    ETT(a,z)52: #cW
+    ETT(a,-)64: #bD
     Created: 01-08-2013t1500+0530
     Updated: 18-11-2017t1053+0530
 
