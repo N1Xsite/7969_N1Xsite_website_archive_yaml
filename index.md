@@ -4,7 +4,7 @@
 
 ### Welcome to my webspace baby <3
 p.s. LIONS keep on RTFM, ikr.. hit the man pages.
-`^setmode=MODE666 --transparent$ ~#:
+`^setmode=MODE666 --transparent$ ~@#:
 `
 
 'tis funny you're the broken one: and i'm the only one to make you say it.
@@ -63,4 +63,4 @@ Grateful 'ONLY' to all \*UNIX, \*# and my Alma Maters.
 <br>Up, What’s next?
 <br>with <3
 <br>~itsN1X
-<hr><hr><hr><hr><hr><hr><hr><font size=1>URGENT: hahahahaha : repeat: hahaha ha hahaha hahahaha, ; nevermind inconsistence, it breeds sense; and this is not a place for tourists. It hosts nuclear garbage. Bye xx</font><hr><hr>
+<hr><hr><hr><hr><hr><hr><hr><font size='1'>URGENT: hahahahaha : repeat: hahaha ha hahaha hahahaha, ; nevermind inconsistence, it breeds sense; and this is not a place for tourists. It hosts nuclear garbage. Bye xx</font><hr><hr>
