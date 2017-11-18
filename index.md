@@ -21,11 +21,11 @@ And, AND & i can ^ALSO$ get nasty inasmuch if you plan likewise.
 ---
 
 # LINKS
-[my .starrs/universe](http://github.com/itsn1x), [14BME0133](http://14bme0133.github.io), [RANTS](http://twitter.com/itsn1x), professional [summary](http://linkedin.com/in/itsn1x), and my <3, [ #SCN1X ](http://soundcloud.com/itsn1x) --__-- want [ about me ](https://about.me/itsN1X).
+[my .starrs/universe](http://github.com/itsn1x), [14BME0133](http://14bme0133.github.io), [RANTS](http://twitter.com/itsn1x), professional [summary](http://linkedin.com/in/itsn1x), and my <3, [ #SCN1X ](http://soundcloud.com/itsn1x) --__-- OR navigate [ about me ](https://about.me/itsN1X).
 ---
 
 # Oh! I _
-#Securities #Security #xKcd #boson #Avionics #Ballgames #CivilMARS #STREET #vector-scalables #bt-ARMY #HTTPS #Trance #openGovt #SrBeckham #Auteuil #STOCKH #TensorII #ch4n #USDNRW #Absinthe #blockchain #PeriodicTable #MaaS #Kaikkialla #Equities #Aprilla1300RR #US-Sr #Dim10 & #Dim118,#objC #MAME #psuedoanarchy #yLOL #networkTech #TBTIRT #chaosK-Theory #IN #ALLin #XeMC #tXtRiG
+#Securities #Security #xKcd #boson #Avionics #Ballgames #CivilMARS #STREET #vector-scalables #bt-ARMY #HTTPS #Trance #openGovt #SrBeckham #Auteuil #STOCKH #TensorII #ch4n #USDNRW #Absinthe #ChaloMARS #blockchain #PeriodicTable #MaaS #Kaikkialla #Equities #Aprilla1300RR #US-Sr #Dim10 & #Dim118,#objC #MAME #psuedoanarchy #yLOL #networkTech #TBTIRT #chaosK-Theory #IN #ALLin #XeMC #tXtRiG
 
 ### And then aswell, 
 my [NEWS FEEDS](NewsFEEDforN1Xsite) and [ #tag #TBTIRT ](https://twitter.com/search?q=TBTIRT) and [ News about me ](http://google.com/search?q=itsn1x)
