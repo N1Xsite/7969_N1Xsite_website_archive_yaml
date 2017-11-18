@@ -21,7 +21,7 @@ And, AND & i can ^ALSO$ get nasty inasmuch if you plan likewise.
 ---
 
 # LINKS
-[my .starrs/universe](http://github.com/itsn1x), [14BME0133](http://14bme0133.github.io), [RANTS](http://twitter.com/itsn1x), professional [summary](http://linkedin.com/in/itsn1x), and my <3 [ #SCN1X ](http://soundcloud.com/itsn1x).
+[my .starrs/universe](http://github.com/itsn1x), [14BME0133](http://14bme0133.github.io), [RANTS](http://twitter.com/itsn1x), professional [summary](http://linkedin.com/in/itsn1x), and my <3, [ #SCN1X ](http://soundcloud.com/itsn1x) --__-- want [ about me ](https://about.me/itsN1X).
 ---
 
 # Oh! I _
