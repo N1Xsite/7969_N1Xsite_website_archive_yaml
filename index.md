@@ -27,7 +27,7 @@ Also, at [ddh](https://duckduckhack.com/u/itsn1x), Moz [IN](https://mozillatn.gi
 
 # Oh! I 
 was last as't:
-
+```
 de-chronologically;
     -   2017: https://n1x.site ;
     -   2015: https://n1x.website ;
@@ -35,6 +35,7 @@ de-chronologically;
     -   2006: @itsN1X ;
     -   2004: @quiksilvr ;
     -   1999: @chn21. ;
+```
 
 ---
 
@@ -69,7 +70,7 @@ All rights reserved.
 Grateful 'ONLY' to all \*UNIX, \*# and my Alma Maters.
 
 
-    Version served: v77.42.3
+    Version served: v77.42.371
     ETT(a,-)64 checksum: #eQ
     Update: 24112017T2353+0530
 
