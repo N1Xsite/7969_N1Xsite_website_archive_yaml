@@ -1,39 +1,48 @@
-# Hey, this is ://N1X.site/
+# Hey, stay safe! Btw, this is ://N1X.site/
 #### We're elated to cache your presence !!
 ---
 
-### Welcome to my webspace baby <3
+### Welcome to my webspace friend <3
 p.s. LIONS keep on RTFM, ikr.. hit the man pages.
 `^setmode=MODE666 --transparent$ ~@#:
-`
-
 'tis funny you're the broken one: & i'm the only 1 to make you say it.
+`
 ---
 
 #### But
-you just got to know me! NEVER guess who or where I could be ;)
+You just got to know us! NEVER guess who or where, I could be ;)
 They're watching. They're logging.
-Oh did I mention they family?
+Oh did I mention they fam?
 ---
 
-Also, ALSO: $ YOUR PUBLIC THINGS $ have been recorded (by me, i believe).
-And, AND & i can ^ALSO$ get nasty inasmuch if you plan likewise.
+Also, :YOUR PUBLIC THINGS: have been recorded (by me, i believe).
+And, & icann get nasty inasmuch if you plan likewise.
 ---
 
 # LINKS
-[my .starrs/universe](http://github.com/itsn1x), [14BME0133](http://14bme0133.github.io), [RANTS](http://twitter.com/itsn1x), professional [summary](http://linkedin.com/in/itsn1x), and my <3, [ #SCN1X ](http://soundcloud.com/itsn1x) --__-- OR navigate [ about me ](https://about.me/itsN1X).
+As a little hobby: [my .stars](http://github.com/itsn1x), 9estudiante9: [14BME0133](http://14bme0133.github.io), the incessant [RANTS](http://twitter.com/itsn1x), a neat professional [summary](http://linkedin.com/in/itsn1x), or maybe a [visualization](https://vizualize.me/N1X) and my time, [SCN1X](http://soundcloud.com/itsn1x). A [tl;dr](https://about.me/itsN1X) is mandatory.
 ---
 
+Also, at [ddh](https://duckduckhack.com/u/itsn1x), Moz [TN](https://mozillatn.github.io) and [OSD](https://opensourcedesign.org)
+
 # Oh! I _
-#Securities #Security #xKcd #boson #Avionics #Ballgames #CivilMARS #STREET #vector-scalables #bt-ARMY #HTTPS #Trance #openGovt #SrBeckham #Auteuil #STOCKH #TensorII #ch4n #USDNRW #Absinthe #ChaloMARS #blockchain #PeriodicTable #MaaS #Kaikkialla #Equities #Aprilla1300RR #US-Sr #Dim10 & #Dim118,#objC #MAME #psuedoanarchy #yLOL #networkTech #TBTIRT #chaosK-Theory #IN #ALLin #XeMC #tXtRiG
+was last ast:
+` de-chronologically:
+2017: https://n1x.site
+2015: https://n1x.website
+2011: @f4nny
+2006: @itsN1X
+2004: @quiksilvr
+1999: @chn21.
+`
 
 ### And then aswell, 
-my [NEWS FEEDS](NewsFEEDforN1Xsite) and [ #tag #TBTIRT ](https://twitter.com/search?q=TBTIRT) and [ News about me ](http://google.com/search?q=itsn1x)
+my [FEEDS](NewsFEEDforN1Xsite) and [#TBTIRT](https://twitter.com/search?q=TBTIRT) and [recent news about me](http://google.com/search?q=n1x)
 
 ---
 
 ### HOW MAY I HELP YOU?
-Write emotions incessantly to my emailbox : 1by0 [at] protonmail [dot] com (actually, you.. nm)
+Write emotions incessantly to my emailbox : 1by0 [at] protonmail [dot] com (actually, you.. nme)
 ---
 
 # Disclaimer:
@@ -41,8 +50,8 @@ We shall meet. There & then. I, an Nikhil, quenching the K, the static.
 
 #### Requests pertaining 'HELP' to my emailbox above.
 2017-11-17 at 05:30, PM IST : 'my baby is borne, N1Xborn!'
- 
-
+`This site has now a [sub](./) live on #xPX-architecture. System hyperpatch successful.
+`
 ## __Good-eTTe-Nights__ (X (X
 XeMC, itsN1X, P52 & The bt-army  
 (C) 2017. #N1Xfam
@@ -55,13 +64,8 @@ Grateful 'ONLY' to all \*UNIX, \*# and my Alma Maters.
 
 
     Version served: v77.42.3
-    ET: #7728
-    ETT: #0937
-    ETX: #7728
-    ETT(a,z)52: #cW
-    ETT(a,-)64: #bD
-    Created: 01-08-2013t1500+0530
-    Updated: 18-11-2017t1053+0530
+    ETT(a,-)64 checksum: #eQ
+    Update: 18-11-2017t1053+0530
 
 © https://N1X.site
 <br>Up, What’s next?
