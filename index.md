@@ -12,29 +12,34 @@ p.s. LIONS keep on RTFM, ikr.. hit the man pages.
 #### But
 You just got to know us! NEVER guess who or where, I could be ;)
 They're watching. They're logging.
-Oh did I mention they fam?
----
+Oh did I mention 'they'?
+
 
 Also, :YOUR PUBLIC THINGS: have been recorded (by me, i believe).
 And, & icann get nasty inasmuch if you plan likewise.
----
+
 
 # LINKS
 As a little hobby: [my .stars](http://github.com/itsn1x), 9estudiante9: [14BME0133](http://14bme0133.github.io), the incessant [RANTS](http://twitter.com/itsn1x), a neat professional [summary](http://linkedin.com/in/itsn1x), or maybe a [visualization](https://vizualize.me/N1X) and my time, [SCN1X](http://soundcloud.com/itsn1x). A [tl;dr](https://about.me/itsN1X) is mandatory.
----
 
-Also, at [ddh](https://duckduckhack.com/u/itsn1x), Moz [TN](https://mozillatn.github.io) and [OSD](https://opensourcedesign.org)
 
-# Oh! I _
-was last ast:
-` de-chronologically:
-2017: https://n1x.site
-2015: https://n1x.website
-2011: @f4nny
-2006: @itsN1X
-2004: @quiksilvr
-1999: @chn21.
+Also, at [ddh](https://duckduckhack.com/u/itsn1x), Moz [IN](https://mozillatn.github.io) and [OSD](https://opensourcedesign.org)
+
+# Oh! I 
+was last as't:
+
 `
+de-chronologically;
+    -   2017: https://n1x.site ;
+    -   2015: https://n1x.website ;
+    -   2011: @f4nny ;
+    -   2006: @itsN1X ;
+    -   2004: @quiksilvr ;
+    -   1999: @chn21. ;
+
+`
+
+---
 
 ### And then aswell, 
 my [FEEDS](NewsFEEDforN1Xsite) and [#TBTIRT](https://twitter.com/search?q=TBTIRT) and [recent news about me](http://google.com/search?q=n1x)
