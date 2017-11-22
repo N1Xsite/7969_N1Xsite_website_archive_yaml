@@ -51,12 +51,14 @@ Write emotions incessantly to my emailbox : 1by0 [at] protonmail [dot] com (actu
 We shall meet. There & then. I, an Nikhil, quenching the K, the static.
 
 #### Requests pertaining 'HELP' to my emailbox above.
-2017-11-17 at 05:30, PM IST : 'my baby is borne, N1Xborn!'
-` .
-This site has now a [sub](./), live on #xPX-arch.
+
+```
+2017-11-17 at 05:30, PM IST : 'baby is borne, born!'
+
 System hyperpatch successful.
-`
-## __Good-eTTe-Nights__ (X (X
+```
+
+## Good-Night (X (X
 XeMC, itsN1X, P52 & The bt-army  
 (C) 2017. #N1Xfam
 
@@ -69,7 +71,7 @@ Grateful 'ONLY' to all \*UNIX, \*# and my Alma Maters.
 
     Version served: v77.42.3
     ETT(a,-)64 checksum: #eQ
-    Update: 24-11-2017t2353+0530
+    Update: 24112017T2353+0530
 
 © https://N1X.site
 <br>Up, What’s next?
