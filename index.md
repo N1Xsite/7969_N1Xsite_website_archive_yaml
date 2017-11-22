@@ -28,16 +28,13 @@ Also, at [ddh](https://duckduckhack.com/u/itsn1x), Moz [IN](https://mozillatn.gi
 # Oh! I 
 was last as't:
 
-`
 de-chronologically;
     -   2017: https://n1x.site ;
     -   2015: https://n1x.website ;
-    -   2011: @f4nny ;
+    -   2011: @f40ny ;
     -   2006: @itsN1X ;
     -   2004: @quiksilvr ;
     -   1999: @chn21. ;
-
-`
 
 ---
 
@@ -55,7 +52,9 @@ We shall meet. There & then. I, an Nikhil, quenching the K, the static.
 
 #### Requests pertaining 'HELP' to my emailbox above.
 2017-11-17 at 05:30, PM IST : 'my baby is borne, N1Xborn!'
-`This site has now a [sub](./) live on #xPX-architecture. System hyperpatch successful.
+` .
+This site has now a [sub](./), live on #xPX-arch.
+System hyperpatch successful.
 `
 ## __Good-eTTe-Nights__ (X (X
 XeMC, itsN1X, P52 & The bt-army  
@@ -70,10 +69,10 @@ Grateful 'ONLY' to all \*UNIX, \*# and my Alma Maters.
 
     Version served: v77.42.3
     ETT(a,-)64 checksum: #eQ
-    Update: 18-11-2017t1053+0530
+    Update: 24-11-2017t2353+0530
 
 © https://N1X.site
 <br>Up, What’s next?
 <br>with <3
 <br>~itsN1X
-<hr><hr><hr><hr><hr><hr><hr><font size='1'>URGENT: hahahahaha : repeat: hahaha ha hahaha hahahaha, ; nevermind inconsistence, it breeds sense; and this is not a place for tourists. It hosts nuclear garbage. Bye xx</font><hr><hr>
+<hr><hr><hr><hr><hr><hr><hr><font size='1'>URGENT: hahahahaha : repeat: hahaha ha hahaha hahahaha, ; nevermind inconsistence, it breeds sense; and this is not a place for tourists. It hosts nuclear garbage. Bye xx (pp.s. did you meet the bt-a?)</font><hr><hr>
