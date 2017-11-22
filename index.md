@@ -4,9 +4,9 @@
 
 ### Welcome to my webspace friend <3
 p.s. LIONS keep on RTFM, ikr.. hit the man pages.
-`^setmode=MODE666 --transparent$ ~@#:
+`^setmode=MODE666 --transparent$ ~@#:`
 'tis funny you're the broken one: & i'm the only 1 to make you say it.
-`
+
 ---
 
 #### But
@@ -78,4 +78,4 @@ Grateful 'ONLY' to all \*UNIX, \*# and my Alma Maters.
 <br>Up, What’s next?
 <br>with <3
 <br>~itsN1X
-<hr><hr><hr><hr><hr><hr><hr><font size='1'>URGENT: hahahahaha : repeat: hahaha ha hahaha hahahaha, ; nevermind inconsistence, it breeds sense; and this is not a place for tourists. It hosts nuclear garbage. Bye xx (pp.s. did you meet the bt-a?)</font><hr><hr>
+<hr><hr><hr><hr><hr><hr><hr><font size='1'>URGENT: hahahahaha : repeat: hahaha ha hahaha hahahaha, huehahaha ; nevermind inconsistence, it breeds sense;<hr>.. and this is not a place for tourists. It hosts nuclear garbage. Bye xx (pp.s. did you meet the bt-a?)</font><hr><hr>
