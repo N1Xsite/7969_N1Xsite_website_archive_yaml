@@ -5,6 +5,7 @@
 ### Welcome to my webspace friend <3
 p.s. LIONS keep on RTFM, ikr.. hit the man pages.
 `^setmode=MODE666 --transparent$ ~@#:`
+
 'tis funny you're the broken one: & i'm the only 1 to make you say it.
 
 ---
@@ -37,7 +38,9 @@ de-chronologically;
 ---
 
 ### And then aswell, 
-my [FEEDS](NewsFEEDforN1Xsite) and [#TBTIRT](https://twitter.com/search?q=TBTIRT), [#TBTiWT](https://twitter.com/search?q=TBTIWT) and [recent news about me](http://google.com/search?q=n1x). I mostly kill time here at [SCN1X](https://soundcloud.com/itsn1x)
+my [FEEDS](NewsFEEDforN1Xsite) and [#TBTIRT](https://twitter.com/search?q=TBTIRT), [#TBTiWT](https://twitter.com/search?q=TBTIWT) and [recent news about me](http://google.com/search?q=n1x). I mostly kill time here at [SCN1X](https://soundcloud.com/itsn1x).
+
+###### #Securities #Security #xKcd #boson #Avionics #Ballgames #CivilMARS #STREET #vector-scalables #bt-ARMY #HTTPS #Trance #openGovt #SrBeckham #Auteuil #STOCKH #TensorII #ch4n #USDNRW #Absinthe #ChaloMARS #blockchain #PeriodicTable #MaaS #Kaikkialla #Equities #Aprilla1300RR #US-Sr #Dim10 & #Dim118,#objC #MAME #psuedoanarchy #yLOL #networkTech #TBTIRT #chaosK-Theory #IN #ALLin #XeMC #tXtRiG #doNET == #xENO
 
 ---
 
