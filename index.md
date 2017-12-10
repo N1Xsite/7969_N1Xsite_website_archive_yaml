@@ -78,4 +78,4 @@ Grateful 'ONLY' to all \*UNIX, \*# and my Alma Maters.
 <br>Up, What’s next?
 <br>with <3
 <br>~itsN1X
-<hr><hr><hr><hr><hr><hr><hr><font size='1'>URGENT: nevermind errors or inconsistence, it breeds sense;<br>.. and this is not a place for tourists. It hosts nuclear garbage. Bye xx (pp.s. did you meet the bt-a? lo they sure did!)</font><hr><hr>
+<hr><hr><hr><hr><hr><hr><hr><font size='1'>URGENT: nevermind errors or inconsistence, it breeds sense;<br>.. and this is not a place for tourists. It hosts nuclear garbage. Bye xx <br>(pp.s. did 'ANY' you <a title="Web Analytics" href="http://statcounter.com/" target="_blank"><img src="//c.statcounter.com/11569191/0/dbb0514a/0/" alt="N1X" ></a> toDay meet the bt-army? lo1, they sure did!)</font><hr><hr>
