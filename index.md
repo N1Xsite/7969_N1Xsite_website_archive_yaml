@@ -8,6 +8,8 @@ p.s. LIONS keep on RTFM, ikr.. hit the man pages.
 
 'tis funny you're the broken one: & i'm the only 1 to make you say it.
 
+ - [x] Remember: DO NOT FORGET.
+ - [x] The obligation to the CONTRACT of TImE is MUST.
 ---
 
 #### But
@@ -27,12 +29,9 @@ Also, at [ddh](https://duckduckhack.com/u/itsn1x), Moz [IN](https://mozillatn.gi
 was last as't networking with psueons:
 ```
 de-chronologically;
-    -   2017: https://n1x.site ;
-    -   2015: https://n1x.website ;
-    -   2011: @f40ny ;
-    -   2006: @itsN1X ;
-    -   2004: @quicksilv3r ;
-    -   1999: $CHUN9. ;
+    -   Student                 [before]   
+    -   Book-reader             [aftermath]
+    -   Reformer-Thinker    [foreveresteem]
 ```
 
 ---
@@ -58,8 +57,11 @@ We shall meet. There & then. I, an Nikhil, quenching the K, the static.
 
 System hyperpatch successful.
 ```
+#### &RE-MEMb3R
 
-## Good-Night (X (X
+![](n1x.site.imagine.jpeg)
+
+## Good-eTTe-Nights (X (X
 XeMC, itsN1X, P52 & The bt-army  
 (C) 2017. #N1Xfam
 
@@ -70,9 +72,10 @@ All rights reserved.
 Grateful 'ONLY' to all \*UNIX, \*# and my Alma Maters.
 
 
-    Version served: v77.42.371
+    Version served: v77.62.371
     ETT(a,-)64 checksum: #eQ
-    Update: 02122017T1353+0530
+    Update: 22122017T1953+0530
+    SEA.ZZZZ,ZZZZL: 843.264,128
 
 © https://N1X.site
 <br>Up, What’s next?
