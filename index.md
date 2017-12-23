@@ -59,7 +59,7 @@ System hyperpatch successful.
 ```
 #### &RE-MEMb3R
 
-![](n1x.site.imagine.jpeg)
+![](n1x.site.imagine.jpg)
 
 ## Good-eTTe-Nights (X (X
 XeMC, itsN1X, P52 & The bt-army  
