@@ -1,4 +1,4 @@
-# Hey, stay safe! Btfwd, this is ://N1X.site/
+# Hey, stay:$afe! Btfwd, this is [pr0]://N1X.site/
 #### We're elated to cache your presence !!
 ---
 
@@ -10,6 +10,7 @@ p.s. LIONS keep on RTFM, ikr.. hit the man pages.
 
  - [x] Remember: DO NOT FORGET.
  - [x] The obligation to the CONTRACT of TImE is MUST.
+
 ---
 
 #### But
@@ -39,7 +40,7 @@ de-chronologically;
 ### And then aswell, 
 my [FEEDS](NewsFEEDforN1Xsite) and [#TBTIRT](https://twitter.com/search?q=TBTIRT), [#TBTiWT](https://twitter.com/search?q=TBTIWT) and [recent news about me](http://google.com/search?q=n1x). I mostly kill time here at [SCN1X](https://soundcloud.com/itsn1x).
 
-###### #Securities #Secure #Security #xKdE #boson #Avionics #Ballgames #CivilMARS #STREET #vector-scalables #bt-ARMY #HTTPS #Trance #openGovt #SrBeckham #Auteuil #STOCKH #TensorII #ch4n #USDNRW #Absinthe #ChaloMARS #blockchain #PeriodicTable #MaaS #Kaikkialla #Equities #Aprilla1300RR #US-Sr #Dim10 & #Dim118,#objC #MAME #psuedoanarchy #yLOL #networkTech #TBTIRT #chaosK-Theory #IN #ALLin #XeMC #tXtRiG #doNET == #xENO
+###### #Securities #Secure #Security #xKdE #boson #Avionics #Ballgames #CivilMARS #STREET #vector-scalables #bt-ARMY #HTTPS #Trance #openGovt #SrBeckham #Auteuil #STOCKH #TensorII #ch4n #USDNRW #Absinthe #ChaloMARS #blockchain #PeriodicTable #MaaS #Kaikkialla #Equities #Aprilla1300RR #US-Sr { #Dim10 #Dim13 & #Dim118} #objC #MAME #psuedoanarchy #yLOL #networkTech #TBTIRT #chaosK-Theory #IN #ALLin #XeMC #tXtRiG #doNET #co.i == #xENO
 
 ---
 
@@ -69,7 +70,7 @@ XeMC, itsN1X, P52 & The bt-army
 
 All rights reserved.
 
-Grateful 'ONLY' to all \*UNIX, \*# and my Alma Maters.
+Grateful 'ONLY' to all \*N|X, \*# and my manufacurer(s) ỵ Alma Maters.
 
 
     Version served: v77.62.371
