@@ -1,6 +1,5 @@
 ---
 title: N1X [dot] site
-description: [pr0]://N1X.site || coded by luser::itsN1X
 ---
 # Hey, stay:$afe! Btfwd, this is [pr0]://N1X.site/
 #### We're elated to cache your presence !!
@@ -87,3 +86,4 @@ All rights reserved.
 <br>with <3
 <br>~itsN1X
 <hr><hr><hr><hr><hr><hr><hr><font size='1'>URGENT: nevermind errors or inconsistence, it breeds sense;<br>.. and this is not a place for tourists. It hosts nuclear garbage. Bye xx <br>(pp.s. did 'ANY' you <a title="Web Analytics" href="http://statcounter.com/" target="_blank"><img src="//c.statcounter.com/11569191/0/dbb0514a/0/" alt="N1X" ></a> toDay meet the bt-army? lo1, they sure did!)</font><hr><hr>
+<html><header><title>Xe921 || [pr0]://N1X.site || coded by luser::itsN1X</title></header></html>
