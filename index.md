@@ -24,10 +24,10 @@ Oh did I mention 'they'?
 
 
 # LINKS
-As a little hobby: [my .stars](http://github.com/itsn1x), 9estudiante9: [14BME0133](http://14bme0133.github.io), the incessant [RANTS](http://twitter.com/itsn1x), a neat professional [summary](http://linkedin.com/in/itsn1x), or maybe a [visualization](https://vizualize.me/N1X) and my time, [SCN1X](http://soundcloud.com/itsn1x). A [tl;dr](https://about.me/itsN1X) is mandatory. We could start with being acquaints, [you know](https://nikhilpandita.n1x.site).
+As a little hobby: [my .stars](http://github.com/itsn1x), 9estudiante9: [14BME0133](http://14bme0133.github.io), the incessant [RANTS](http://twitter.com/itsn1x), a neat professional [summary](http://linkedin.com/in/itsn1x), or maybe a [visualization](https://vizualize.me/N1X) and my time, [SCN1X](http://soundcloud.com/itsn1x). A [tl;dr](https://about.me/itsN1X) is mandatory. We could start with being acquaints, [you know](https://nikhilpandita.n1x.site). My top floor is filled [with this](https://goodreads.com/itsn1x).
 
 
-Also, at [ddh](https://duckduckhack.com/u/itsn1x), Moz [IN](https://mozillatn.github.io) and [OSD](https://opensourcedesign.net)
+Also, at [ddh](https://duckduckhack.com/u/itsn1x), Moz [TN,IN](https://mozillatn.github.io) and [OSD](https://opensourcedesign.net)
 
 # Oh! I 
 was last as't networking with psueons:
