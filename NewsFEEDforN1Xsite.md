@@ -1,8 +1,9 @@
+---
 title: N1X
 content: N 1 X + itsN1X + nONEx
 description: Wel 2 N1X site 
 jekyll-theme: hacker
-----
+---
 
 # News FEED for N1X site | N1X.site
 #### \# N1Xsite on [twitter](http://twitter.com/search?hashtag=N1Xsite/..)
