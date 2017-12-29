@@ -51,7 +51,7 @@ Write emotions incessantly to my emailbox : 1by0 [at] protonmail [dot] com (actu
 # Disclaimer:
 We shall meet. There & then. I, an Nikhil, quenching the K, the static.
 
-#### Requests // 'HELP' could go to my emailbox above. I read too much. Way damn more than a Buufeckt would.
+#### Requests // 'HELP' could go to my emailbox above. I read too much. Way damn more than a Buufeckt'eer would.
 
 ```
 2017-11-17 at 05:30, PM IST : 'baby is borne, born!'
@@ -70,7 +70,7 @@ XeMC, itsN1X, P52 & The bt-army
 
 All rights reserved.
 
-Grateful 'ONLY' to all \*N|X, \*# and my manufacurer(s) ỵ Alma Maters.
+| Grateful 'ONLY' to all \*NiX, \*# and my manufacurer(s) ỵ Alma Maters. |
 
 
     Version served: v77.62.371
