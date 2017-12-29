@@ -1,3 +1,7 @@
+---
+title: N1X [dot] site
+description: [pr0]://N1X.site || coded by luser::itsN1X
+---
 # Hey, stay:$afe! Btfwd, this is [pr0]://N1X.site/
 #### We're elated to cache your presence !!
 ---
