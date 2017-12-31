@@ -18,7 +18,7 @@ p.s. LIONS keep on RTFM, ikr.. hit the man pages.
 ---
 
 #### But
-You just got to know us! NEVER guess who or where, or what I could be ;)
+You just got into: where? NEVER guess who or who'all, or what N1X could be ;)
 They're watching. They're logging.
 Oh did I mention 'they'?
 
