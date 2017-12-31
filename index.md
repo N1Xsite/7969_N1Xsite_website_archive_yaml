@@ -1,6 +1,6 @@
 ---
 title: N1X [dot] site
-description: N1X [dot] site, website, nikhil, xenon, xe921 itsN1X its N1X new delhi bangalore chennai bengaluru india une hyderabad goa
+description: N1X [dot] site, website, nikhil, xenon, xe921 itsN1X its N1X new delhi bangalore chennai bengaluru india pune hyderabad goa
 ---
 # Hey, stay:$afe! Btfwd, this is [pr0]://N1X.site/
 #### We're elated to cache your presence !!
