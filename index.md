@@ -2,6 +2,7 @@
 title: N1X [dot] site
 description: N1X [dot] site, website, nikhil, xenon, xe921 itsN1X its N1X new delhi bangalore chennai bengaluru india pune hyderabad goa
 ---
+| [N1X](https://n1x.site)
 # Hey, stay:$afe! Btfwd, this is [pr0]://N1X.site/
 #### We're elated to cache your presence !!
 ---
@@ -58,7 +59,7 @@ We shall meet. There & then. I, an Nikhil, quenching the K, the static.
 #### Requests // 'HELP' could go to my emailbox above. I read too much. Way damn more than a Buufeckt'eer would.
 
 ```
-2017-11-17 at 05:30, PM IST : 'baby is borne, born!'
+2017-11-17 at 04:58, PM IST : 'baby is borne, born!'
 
 System hyperpatch successful.
 ```
@@ -74,7 +75,7 @@ XeMC, itsN1X, P52 & The bt-army
 
 All rights reserved.
 
-| Grateful 'ONLY' to all \*NiX, \*# and my manufacurer(s) ỵ Alma Maters. |
+| Grateful 'ONLY' to all \*NiX, \*# ỵ Alma Maters. |
 
 
     Version served: v77.84.371
@@ -87,4 +88,4 @@ All rights reserved.
 <br>with <3
 <br>~itsN1X
 <hr><hr><hr><hr><hr><hr><hr><font size='1'>URGENT: nevermind errors or inconsistence, it breeds sense;<br>.. and this is not a place for tourists. It hosts nuclear garbage. Bye xx <br>(pp.s. did 'ANY' of you <a title="Web Analytics" href="http://statcounter.com/" target="_blank"><img src="//c.statcounter.com/11569191/0/dbb0514a/0/" alt="N1X" ></a> toDay encounter the bt-army? lo1, they #P52 sure did)</font><hr><hr>
-<html><header><title>Xe921 || [pr0]://N1X.site || Xcoded by luser::itsN1X</title><meta></meta></header></html>
+<html><header><title>Xe921 || [pr0]://N1X.site || Xcoded by luser::itsN1X</title></header></html>
