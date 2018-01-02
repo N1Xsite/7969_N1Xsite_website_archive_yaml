@@ -12,8 +12,8 @@ p.s. LIONS keep on RTFM, ikr.. hit the man pages.
 
 'tis funny you're the broken one: & i'm the only 1 to make you say it.
 
- - [x] Remember: DO NOT FORGET.
- - [x] The obligation to the CONTRACT of TImE is MUST.
+ - [x] Remember: DO NOT FORGET :: "Inspire & nexver Expect back.
+ - [x] The obligation to the CONTRACT of TIME is a MUST.
 
 ---
 
