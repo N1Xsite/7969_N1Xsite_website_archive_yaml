@@ -2,7 +2,7 @@
 title: N1X [dot] site
 description: N1X [dot] site, website, nikhil, xenon, xe921 itsN1X its N1X new delhi bangalore chennai bengaluru india pune hyderabad goa
 ---
-| [N1><](https://n1x.site)
+| N1X [dot](https://n1x.site) site |
 # Hey, stay:$afe! Btfwd, this is [pr0]://N1X.site/
 #### We're elated to cache your presence !!
 ---
