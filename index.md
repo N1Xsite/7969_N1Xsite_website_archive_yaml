@@ -19,8 +19,8 @@ p.s. LIONS keep on RTFM, ikr.. hit the man pages.
 
 #### But
 You just got into: where? NEVER guess who or who'all, or what N1X could be ;)
-They're watching. They're logging.
-Oh did I mention 'they'?
+They're watching. They're logging They're hemi-excruciating.
+Did I mention 'they'?
 
 
 
@@ -77,14 +77,14 @@ All rights reserved.
 | Grateful 'ONLY' to all \*NiX, \*# and my manufacurer(s) ỵ Alma Maters. |
 
 
-    Version served: v77.62.371
-    ETT(a,-)64 checksum: #eQ
-    Update: 22122017T1953+0530
-    SEA.ZZZZ,ZZZZL: 843.264,128
+    Version served: v77.84.371
+    ETT(a,-)64 checksum: #Wg
+    Update: 02012018T1953+0530
+    SEA.ZZZZ,ZZZZL: 843.9264,128
 
 © https://N1X.site
 <br>Up, What’s next?
 <br>with <3
 <br>~itsN1X
 <hr><hr><hr><hr><hr><hr><hr><font size='1'>URGENT: nevermind errors or inconsistence, it breeds sense;<br>.. and this is not a place for tourists. It hosts nuclear garbage. Bye xx <br>(pp.s. did 'ANY' of you <a title="Web Analytics" href="http://statcounter.com/" target="_blank"><img src="//c.statcounter.com/11569191/0/dbb0514a/0/" alt="N1X" ></a> toDay encounter the bt-army? lo1, they #P52 sure did)</font><hr><hr>
-<html><header><title>Xe921 || [pr0]://N1X.site || Xcoded by luser::itsN1X</title></header></html>
+<html><header><title>Xe921 || [pr0]://N1X.site || Xcoded by luser::itsN1X</title><meta></meta></header></html>
