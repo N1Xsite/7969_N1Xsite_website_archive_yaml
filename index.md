@@ -1,6 +1,6 @@
 ---
 title: N1X [dot] site
-description: N1X [dot] site, website, nikhil, xenon, xe921 itsN1X its N1X new delhi bangalore chennai bengaluru india pune hyderabad goa
+description: N1X [dot] site, home page & website, nikhil, xenon, xe921 itsN1X its N1X new delhi bangalore chennai bengaluru india pune hyderabad goa
 ---
 
 
@@ -33,7 +33,8 @@ Did I mention 'they'?
 As a little hobby: [my public.stars](http://github.com/itsn1x?tab=stars), 9estudiante9: [14BME0133](http://14bme0133.github.io/), the incessant [RANTS](http://twitter.com/itsn1x), a neat professional [summary](http://linkedin.com/in/itsn1x), or maybe a weird [visualization](https://vizualize.me/N1X) of my time, my Love: [SCN1X](http://soundcloud.com/itsn1x). By now, a [tl;dr](https://about.me/itsN1X) is mandatory. We could start with being acquaints, [you know](https://nikhilpandita.n1x.site). My top floor is filled [with this](https://goodreads.com/itsn1x). My basement is a Silicon Landfill.
 
 
-Also, at [ddh](https://duckduckhack.com/u/itsn1x), Moz [TN,IN](https://mozillatn.github.io), advocating internetwork democracy (cool kids call that lea4ing). Exit-node guy.
+Also, at [ddh](https://duckduckhack.com/u/itsn1x), Mozi [TN,IN](https://mozillatn.github.io) and [LXDE](https://launchpad.net/~lubuntu-desktop).  
+Ardently advocating internetwork democracy (cool kids call that lea4ing). Your 'Exit-node guy.
 
 # Oh! I 
 was last as't networking with psueons:
