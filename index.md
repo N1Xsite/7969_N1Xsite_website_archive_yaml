@@ -77,7 +77,7 @@ XeMC, itsN1X, P52 & The bt-army
 (C) 2017. #N1Xfam
 
 ---
-
+![](A1.png) >> Secured at >> ![](A2.png)
 All rights reserved.
 
 | Grateful 'ONLY' to all \*NiX, \*# ỵ Alma Maters. |
