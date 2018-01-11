@@ -1,6 +1,6 @@
 ---
 title: N1X [dot] site
-description: N1X [dot] site, home page & website, nikhil, xenon, xe921 itsN1X its N1X new delhi bangalore chennai bengaluru india pune hyderabad goa
+description: N1X [dot] site, home page & website, nikhil, xenon, xe921, itsN1X, its N1X, new delhi, bangalore, chennai, bengaluru, india, pune, hyderabad, hubli, goa, PANDI, Nikhil Pandita.
 ---
 
 
@@ -16,7 +16,7 @@ description: N1X [dot] site, home page & website, nikhil, xenon, xe921 itsN1X it
 p.s. LIONS keep on RTFM, ikr.. hit the man pages.
 `^setmode=MODE666 --transparent$ ~@#:`
 
-### Newcomers or first-use peers, read this [information](info.md)
+### Newcomers or first-use peers, read this [information](info.md).
 
 
 ---
@@ -31,15 +31,16 @@ XeMC, itsN1X, P52 & The bt-army
 ---
 
 ![](A1.png) >> Secured DNSSEC at >> ![](A2.png) 
+
 All rights reserved.
 
 ---
 
 ### WEBSIZE spans quite 'heavyweight' \(As friends preferably call it)\)
 Quick facts:
- - Size on disk as on 31-12-2018 : `38.1 GB` 
+ - Size on disk as on 31-12-2017 : `38.1 GB` 
  - Sister paritions as on #e7777 : `153subdomains <- http`  p.s. Really sorry for the DNS misconfigs : Migrating soon to 'his own cloWd!
- - Network bandutilities at 18Jan11 : `2samba <- ftp; 7su <- coldVaults`
+ - Network bandutilities at #e7781 : `2samba <- ftp; 7su <- coldVaults`
  
  
 | Grateful 'ONLY' to all \*NiX, \*# ỵ Alma Maters. |
