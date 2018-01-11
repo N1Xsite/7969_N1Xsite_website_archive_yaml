@@ -1,6 +1,6 @@
 ---
 title: N1X [dot] site
-description: N1X [dot] site, home page & website, nikhil, xenon, xe921 itsN1X its N1X new delhi bangalore chennai bengaluru india pune hyderabad goa
+description: N1X [dot] site, home page & website, nikhil, xenon, xe921, itsN1X, its N1X, new delhi, bangalore, chennai, bengaluru, india, pune, hyderabad, hubli, goa, PANDI, Nikhil Pandita.
 ---
 
 
@@ -92,5 +92,5 @@ All rights reserved.
 <br>Up, What’s next?
 <br>with <3
 <br>~itsN1X
-<hr><hr><hr><hr><hr><hr><hr><font size='1'>URGENT: nevermind errors or inconsistence, it breeds sense;<br>.. and this is not a place for tourists. It hosts nuclear garbage. Bye xx <br>(pp.s. did 'ANY' of you <a title="Web Analytics" href="http://statcounter.com/" target="_blank"><img src="//c.statcounter.com/11569191/0/dbb0514a/0/" alt="N1X" ></a> toDay encounter the bt-army? lo1, they #P52 sure did)</font><hr><hr>
+<hr><hr><hr><hr><hr><hr><hr><font size='1'>URGENT: nevermind errors or inconsistence, it breeds sense;<br>.. and this is not a place for tourists. It hosts nuclear garbage. Bye xx <br>(pp.s. did 'ANY' of you toDay encounter the bt-army? lo1, they #P52 sure did)</font><hr><hr>
 <html><header><title>Xe921 || [pr0]://N1X.site || Xcoded by luser::itsN1X</title></header></html>
