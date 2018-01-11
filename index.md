@@ -29,7 +29,8 @@ XeMC, itsN1X, P52 & The bt-army
 (C) 2018. #N1Xfam for the #N1Xsite.
 
 ---
-
+ p.s. Really sorry for the DNS misconfigs : Migrating soon to 'his own cloWd!
+ 
 ![](A1.png) >> Secured DNSSEC at >> ![](A2.png) 
 
 All rights reserved.
@@ -39,7 +40,7 @@ All rights reserved.
 ### WEBSIZE spans quite 'heavyweight' \(As friends preferably call it)\)
 Quick facts:
  - Size on disk as on 31-12-2017 : `38.1 GB` 
- - Sister paritions as on #e7777 : `153subdomains <- http`  p.s. Really sorry for the DNS misconfigs : Migrating soon to 'his own cloWd!
+ - Sister paritions as on #e7777 : `153subdomains <- http` 
  - Network bandutilities at #e7781 : `2samba <- ftp; 7su <- coldVaults`
  
  
