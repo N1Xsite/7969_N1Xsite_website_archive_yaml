@@ -30,8 +30,8 @@ XeMC, itsN1X, P52 & The bt-army
 
 ---
  p.s. Really sorry for the DNS misconfigs : Migrating soon to 'his own cloWd!
- 
-![](A1.png) >> Secured DNSSEC at >> ![](A2.png) 
+
+#### Click here to get [started](https://irc.n1x.site), conversing!
 
 All rights reserved.
 
