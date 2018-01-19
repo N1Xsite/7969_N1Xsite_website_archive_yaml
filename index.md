@@ -1,6 +1,6 @@
 ---
 title: N1X [dot] site
-description: N1X [dot] site, home page & website, nikhil, xenon, xe921, itsN1X, its N1X, new delhi, bangalore, chennai, bengaluru, india, pune, hyderabad, hubli, goa, PANDI, Nikhil Pandita.
+description: N1X [dot] site, home page & website, nikhil, xenon, xe921, itsN1X, its N1X, new delhi, bangalore, chennai, bengaluru, india, pune, hyderabad, hubbali, goa, P AND IT:a, Nikhil Pandita, Mozilla, Class, Unversity, Scholar, Mars.
 ---
 
 
@@ -26,10 +26,10 @@ p.s. LIONS keep on RTFM, ikr.. hit the man pages.
 
 ## Good-eTTe-Nights (X (X
 XeMC, itsN1X, P52 & The bt-army  
-(C) 2018. #N1Xfam for the #N1Xsite.
+(C) 2018 N1X.site.
 
 ---
- p.s. Really sorry for the DNS misconfigs : Migrating soon to 'his own cloWd!
+- P.s. Really sorry for the DNS misconfigs : Migrating soon to 'his own cloWd!
 
 #### Click here to get [started](https://irc.n1x.site), conversing!
 
@@ -50,11 +50,11 @@ Quick facts:
     Version served: v7.785.1
     ETT(a,-)64 checksum: #ED
     Update: 10012018T1953+0530
-    SEA.ZZZZ,ZZZZL: 843.9264,128
+    SEA.ZZZZ,ZZZZL: 843.9264,1516384536
 
 © https://N1X.site
 <br>Up, What’s next?
 <br>with <3
 <br>~itsN1X
 <hr><hr><hr><hr><hr><hr><hr><font size='1'>URGENT: nevermind errors or inconsistence, it breeds sense;<br>.. and this is not a place for tourists. It hosts nuclear garbage. Bye xx <br>(pp.s. did 'ANY' of you toDay encounter the bt-army? lo1, they #P52 sure did)</font><hr><hr>
-<html><header><title>Xe921 || [pr0]://N1X.site || Xcoded by luser::itsN1X</title></header></html>
+<html><header><title>Xe921 || [pr0]://N1X.site || Xoded by luser::itsN1X</title></header></html>
