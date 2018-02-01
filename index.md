@@ -1,6 +1,6 @@
 ---
 title: N1X [dot] site
-description: N1X [dot] site, home page & website, nikhil, xenon, xe921, itsN1X, its N1X, new delhi, bangalore, chennai, bengaluru, india, pune, hyderabad, hubbali, goa, P AND IT:a, Nikhil Pandita, Mozilla, Class, Unversity, Scholar, Mars.
+description: N1X [dot] site, Network, home page & website, nikhil, xenon, xe921, itsN1X, its N1X, new delhi, bangalore, chennai, Bengaluru, India, Pune, Hyderabad, hubbali, goa, P AND IT:a, Nikhil Pandita, Mozilla, Class, University, Scholar, Mars.
 ---
 
 
