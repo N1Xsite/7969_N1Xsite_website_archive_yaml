@@ -11,5 +11,11 @@
 ---
 
 
-![](A1.png)
+![](A1.png) 
 ![](N1X.png)
+```#eT7878 : 
+$[<vmstat -t 17>.depSwarm.Active]
+8TiBytes, SHD
+1333MHz@12.6GiB
+xPX44 - 172.00GHz```
+### 🎓🚀⚡️
