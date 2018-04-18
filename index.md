@@ -1,6 +1,7 @@
 ### N1X [【!$】](altindex.md)7878.
 `₹**4|$**2|฿**-2|♦**0`  
-----
+
+---
 <br>Up, What’s next?
 <br>with <3
 <br>~itsN1X
@@ -8,7 +9,6 @@
 <html><header><title>Xe921 [§]://N1X.site || Xfolded by luser::itsN1X</title></header></html>
 
 ---
-
 ![](A1.png) 
 ![](N1X.png)
 ```
