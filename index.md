@@ -9,4 +9,5 @@
 ### © 2018 【Ξ】7901.
 #### https://N1X.site
 All directions delimited. ```/cc0-3.0/```
-[Peek-a-boo!](N1X.png) or <span><a href="https://twitter.com/itsn1x" class="twitter-follow-button" data-show-count="true" data-show-screen-name="false">Follow N1X</a><script async src="//platform.twitter.com/widgets.js" charset="utf-8"></script></span>
+[Peek-a-boo!](N1X.png)  
+or <span><a href="https://twitter.com/itsn1x" class="twitter-follow-button" data-show-count="true" data-show-screen-name="false">Follow N1X</a><script async src="//platform.twitter.com/widgets.js" charset="utf-8"></script></span>
