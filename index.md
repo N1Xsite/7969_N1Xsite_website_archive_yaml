@@ -1,4 +1,4 @@
-# ![](A1.png) [M](info.md)ore,\*!=[7901](altindex.md).   
+# ![](A1.png) и【1】[x](info.md)ore, \*!=[7901](altindex.md).   
 ```₹1E4|$1E2|฿9e4|¶1e17|®2E3|Ðe5|Ξe1|Q5E16```  
 <br>Up, What’s next?
 <br>with <3
