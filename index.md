@@ -6,5 +6,5 @@
 ### [© 2018 【N1X】7901](https://N1X.site).
 #### https://N1X.site
 All directions delimited. ```/cc0-3.0/```
-<br>On clearnet,<span><a href="https://twitter.com/itsn1x" class="twitter-follow-button" data-show-count="true" data-show-screen-name="false">Follow N1X</a><script async src="//platform.twitter.com/widgets.js" charset="utf-8"></script></span>already!
+<br>For clearnet,<span><a href="https://twitter.com/itsn1x" class="twitter-follow-button" data-show-count="true" data-show-screen-name="false">Follow N1X</a><script async src="//platform.twitter.com/widgets.js" charset="utf-8"></script></span>
 <html><header><meta name="keywords" content="N1X, itsN1X, nikhil, xenon, XE, 921, 110043, 632014, 843264128" ><meta name="description" content="N1X"><meta name="description" content="itsN1X"></header><body><br>Up, What’s next?<br>with <3<br>~ <code>itsN1X</code></body></html>
