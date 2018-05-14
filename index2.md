@@ -1,4 +1,5 @@
-# ![](A1.png) и【1】[x](info.md)ore, \*!=[7901](altindex.md).   
+N1X - dot - Site
+# ![](A1.png) [и](index2.md)【[1](altindex.md)】[x](info.md), \*!=7905.   
 ```₹1E4|$1E2|฿9e4|¶1e17|®2E3|Ðe5|Ξe1|Q5E16```  
 <br>Up, What’s next?
 <br>with <3
