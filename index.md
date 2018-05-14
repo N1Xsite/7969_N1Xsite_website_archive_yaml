@@ -1,4 +1,4 @@
-N1X - dot - Site `#et7605`
+N1X - [dot](https://n1x.site) - SITE `#et7605`
 # ![](A1.png) [и](index2.md)【[1](altindex.md)】[x](info.md), \*!=7905.   
 #### `₹`1E4 |`$`1E2 |`฿`9e4 |`¶`5e7 |`®`2E3 |`Ð`7e5 |`Ξ`2e1 |`Q`5E16. 
 <br>Up, What’s next?
