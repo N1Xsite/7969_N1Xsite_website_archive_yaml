@@ -2,7 +2,6 @@
 <hr><font size='1'><b>Nevermind errors or inconsistence: It breeds sense.</b><br>... && this is not a place for tourists. It hosts nuclear garbage. Bye™ xx!</font>
 # 🚀  ⚡️  🔏  📴
 ### © 2018 [и](index2.md)【[1](altindex.md)】[x](info.md).    
-#### [https://N1X.site](https://N1X.site).    
 All directions d'elimited. ```/cc0-3.0/```
 <br>
 <span><a href="https://twitter.com/itsn1x" class="twitter-follow-button" data-show-count="true" data-show-screen-name="false">Try? N1X.</a><script async src="//platform.twitter.com/widgets.js" charset="utf-8"></script></span>
