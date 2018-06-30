@@ -1,5 +1,5 @@
-#### `#et7952` [»](index0.md)
-<hr><font size='1'><b>Nevermind errors or inconsistence: It breeds sense.</b><br>... && this is not a place for tourists. It hosts nuclear garbage. Bye™ xx!</font><hr><hr>
+#### `#et7952` [»](index0.md) ![](A1.png)
+<hr><font size='1'><b>Nevermind errors or inconsistence: It breeds sense.</b><br>... && this is not a place for tourists. It hosts nuclear garbage. Bye™ xx!</font>
 # 🚀  ⚡️  🔏  📴
 ### © 2018 [и](index2.md)【[1](altindex.md)】[x](info.md).    
 #### [https://N1X.site](https://N1X.site).    
