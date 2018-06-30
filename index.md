@@ -1,5 +1,6 @@
 #### `#et7952` [»](index0.md) 
 <hr><font size='1'><b>Nevermind errors or inconsistence: It breeds sense.</b><br>... && this is not a place for tourists. It hosts nuclear garbage. Bye™, xoxo !</font>
+
 # 🚀  ⚡️  🔏  📴
 ### © 2018 [и](index2.md)【[1](altindex.md)】[x](info.md).    
 All directions d'elimited. ```/cc0-3.0/```
