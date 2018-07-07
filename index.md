@@ -8,9 +8,9 @@ All directions d'elimited. ```/cc0-3.0/```
 <span><a href="https://twitter.com/itsn1x" class="twitter-follow-button" data-show-count="true" data-show-screen-name="false">Try? N1X.</a><script async src="//platform.twitter.com/widgets.js" charset="utf-8"></script></span>
 <html><header><meta name="keywords" content="N1X, itsN1X, nikhil, xenon, XE, 921, 110043, 632014, 843264128" ><meta name="description" content="N1X"><meta name="description" content="itsN1X"></header><body><br>Up, What’s next?<br>with ♥️<br> <code>@</code>its<strong><i>N1X</i></strong><hr>
 <details>
-  <summary>$ΞND:</summary><b><i>Tips/Notes</i>:</b>
+  <summary>📨$ΞND:</summary><b><i>Tips/Notes</i>:</b>
   <details>
-    <summary>++<br><b>(@$#</b></summary><hr>
+    <summary>++<b>(@$#</b></summary><hr>
     <i>Internet based banking:</i>
      <details>
        <summary>Indian Bank</summary><ul><li>A/C#<code>#6110-779-79</code></li><li>IFSC: <code>IDIB-000-V086</code></li></ul>
@@ -21,26 +21,32 @@ All directions d'elimited. ```/cc0-3.0/```
      <details>
        <summary>State Bank of India</summary><ul><li>A/C#<code>#2022-4077-822</code></li><li>IFSC: <code>SBIN-000-1419</code></li></ul>
     </details>
-  </details> <details>
-      <summary>++<br><b>(01и</b></summary><hr>
+  </details>
+  <details>
+      <summary>++<b>(01и</b></summary><hr>
     <i>Internet based banking:</i>
      <details>
-       <summary>Indian Bank</summary><ul><li>A/C#<code>#6110-779-79</code></li><li>IFSC: <code>IDIB-000-V086</code></li></ul>
+       <summary>BTC Bank</summary><ul><li>ticker(:)</li><code><b>฿)</b></code></li><li>public: _key<code>1N1X8i5VuRS1BeMxiy5ZaeensjhsVWdQeC</code></li></ul>
     </details>
      <details>
-       <summary>City Union Bank</summary><ul><li>A/C#<code>#500-1010-1090-3298</code></li><li>IFSC: <code>CIUB-000-0293</code></li></ul>
+       <summary>LTC Bank</summary><ul><li>ticker(:)</li><code><b>Ł)</b></code><li>public: _key <code>  LUUv1SnsYECfCRCMLXgxDrcLFgLwA4PRaf</code></li></ul>
     </details>
      <details>
-       <summary>State Bank of India</summary><ul><li>A/C#<code>#2022-4077-822</code></li><li>IFSC: <code>SBIN-000-1419</code></li></ul>
+       <summary>Banker ETH</summary><ul><li>ticker(:)</li><code><b>Ξ)</b></code></li><li>public: _key <code>0xD0f79B71A8ffB7f70392630f8BFc900fcA27af42</code></li></ul>
     </details>
   </details> <details>
-      <summary>++<br><b>(0D3</b></summary><hr>
+      <summary>++<b>(0D3</b></summary><hr>
     <i>International network based messaging:</i>
      <details>
        <summary>Personal eMail</summary><ul><li>Institution:<code>Mozilla NFP</code></li><li>Domain:<code>gmail.com</code></li><li>identifier:<code>k9nikhil</code></li></ul>
     </details><details>
-       <summary>Work eMail</summary><ul><li>Encryption (public):<code>-----BEGIN PGP PUBLIC KEY BLOCK-----
+  <summary>Work eMail</summary><ul><li>Encryption: ON (public) <code>:=default</code>
+  <code>
+  
+  -----BEGIN PGP PUBLIC KEY BLOCK-----
+  
 Version: OpenPGP.js v2.5.8
+
 Comment: [eMail] 1by0 [at] pm [dot] me %{{REFER2 n1x.site}}%
 
 xsBNBFrXV1QBCAC49vpsgGlvToelzKY+12oPiemXUZdA6nESTGgdqAYY04wU
@@ -70,11 +76,9 @@ lZ63rKtmac4tpWJGFG7uLamEtQbNa2iE8eaVtGN4CtRVUYgwiZ/DTVIt/Chf
 FWRLapt2VIG9PsDcoP2t+FCghgXKEc2AogNpLnTcWop3fi3pGwpiofAAMo0z
 3Wqn+1c4ReVz4o0zoiHaQv/APuBJHDItni8xTtgmfvFpP6ODYioYVOJYNeVy
 fA==
-=d0MW</code></li><li>Domain:<code>pm.me [or,and] protonmail.com</code></li><li>identifier:<code>1by0</code></li></ul>
+=d0MW
+</code></li></li><li>Domain:<code>pm.me [or,and] protonmail.com</code></li><li>identifier:<code>1by0</code></li></ul>
     </details><details>
        <summary>University eMail</summary><ul><li>Institution:<code>VIT University</code></li><li>Domain:<code>vit.ac.in</code></li><li>identifier:<code>nikhil.pandita2014</code></li></ul>
     </details></details>
-</details> 
-  
-  
-<hr><br>฿:<code>1N1X8i5VuRS1BeMxiy5ZaeensjhsVWdQeC</code></body></html>
+</details><details><summary>🤑</summary>📧💌📮📩💸💴💶💷💰💳💎⚡️🤖💱💲💹</details></body></html>
