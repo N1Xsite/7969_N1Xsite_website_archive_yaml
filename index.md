@@ -1,4 +1,4 @@
-#### `#et7952` [»](index0.md) 
+#### `#et7952` [»](index0.md) </details><details><summary>🤑</summary>📧💌📮📩💸💴💶💷💰💳💎⚡️🤖💱💲💹</details>
 <hr><font size='1'><b>Nevermind errors or inconsistence: It breeds sense.</b><br>... && this is not a place for tourists. It hosts nuclear garbage. Bye™, xoxo !</font>
 
 # 🚀  ⚡️  🔏  📴
@@ -26,13 +26,13 @@ All directions d'elimited. ```/cc0-3.0/```
       <summary>++<b>(01и</b></summary><hr>
     <i>Internet based banking:</i>
      <details>
-       <summary>BTC Bank</summary><ul><li>ticker(:)</li><code><b>฿)</b></code></li><li>public: _key<code>1N1X8i5VuRS1BeMxiy5ZaeensjhsVWdQeC</code></li></ul>
+       <summary>BTC Bank</summary><ul><li>ticker(:)</li><code><b>฿)</b></code><li>public: _key<code>1N1X8i5VuRS1BeMxiy5ZaeensjhsVWdQeC</code></li></ul>
     </details>
      <details>
        <summary>LTC Bank</summary><ul><li>ticker(:)</li><code><b>Ł)</b></code><li>public: _key <code>  LUUv1SnsYECfCRCMLXgxDrcLFgLwA4PRaf</code></li></ul>
     </details>
      <details>
-       <summary>Banker ETH</summary><ul><li>ticker(:)</li><code><b>Ξ)</b></code></li><li>public: _key <code>0xD0f79B71A8ffB7f70392630f8BFc900fcA27af42</code></li></ul>
+       <summary>Banker ETH</summary><ul><li>ticker(:)</li><code><b>Ξ)</b></code><li>public: _key <code>0xD0f79B71A8ffB7f70392630f8BFc900fcA27af42</code></li></ul>
     </details>
   </details> <details>
       <summary>++<b>(0D3</b></summary><hr>
@@ -81,4 +81,4 @@ fA==
     </details><details>
        <summary>University eMail</summary><ul><li>Institution:<code>VIT University</code></li><li>Domain:<code>vit.ac.in</code></li><li>identifier:<code>nikhil.pandita2014</code></li></ul>
     </details></details>
-</details><details><summary>🤑</summary>📧💌📮📩💸💴💶💷💰💳💎⚡️🤖💱💲💹</details></body></html>
+</body></html>
