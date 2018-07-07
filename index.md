@@ -1,4 +1,5 @@
-#### `#et7952` [»](index0.md) </details><details><summary>🤑</summary>📧💌📮📩💸💴💶💷💰💳💎⚡️🤖💱💲💹</details>
+#### `#et7952` [»](index0.md) 
+</details><details><summary>🤑</summary>📧💌📮📩💸💴💶💷💰💳💎⚡️🤖💱💲💹</details>
 <hr><font size='1'><b>Nevermind errors or inconsistence: It breeds sense.</b><br>... && this is not a place for tourists. It hosts nuclear garbage. Bye™, xoxo !</font>
 
 # 🚀  ⚡️  🔏  📴
