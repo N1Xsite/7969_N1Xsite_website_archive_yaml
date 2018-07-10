@@ -1,7 +1,5 @@
 #### `#et7952` [»](index0.md) 
 
-
-<details>💶<summary>🤑</summary>📧💌📮📩💸💴💷💰💳💎⚡️🤖💱💲💹</details>
 <hr><font size='1'><b>Nevermind errors or inconsistence: It breeds sense.</b><br>... && this is not a place for tourists. It hosts nuclear garbage. Bye™, xoxo !</font>
 
 
@@ -46,7 +44,7 @@ All directions d'elimited. ```/cc0-3.0/```
        <summary>Personal eMail</summary><ul><li>Institution:<code>Mozilla NFP</code></li><li>Domain:<code>gmail.com</code></li><li>identifier:<code>k9nikhil</code></li></ul>
     </details><details>
   <summary>Work eMail</summary><ul><li>Encryption: ON (public) <code>:=default</code>
-  <code>
+  <code>"""
   
   -----BEGIN PGP PUBLIC KEY BLOCK-----
   
@@ -81,7 +79,6 @@ lZ63rKtmac4tpWJGFG7uLamEtQbNa2iE8eaVtGN4CtRVUYgwiZ/DTVIt/Chf
 FWRLapt2VIG9PsDcoP2t+FCghgXKEc2AogNpLnTcWop3fi3pGwpiofAAMo0z
 3Wqn+1c4ReVz4o0zoiHaQv/APuBJHDItni8xTtgmfvFpP6ODYioYVOJYNeVy
 fA==
-=d0MW
-</code></li></li><li>Domain:<code>pm.me [or,and] protonmail.com</code></li><li>identifier:<code>1by0</code></li></ul>
+=d0MW"""</code></li></li><li>Domain:<code>pm.me [or,and] protonmail.com</code></li><li>identifier:<code>1by0</code></li></ul>
     </details><details>
        <summary>University eMail</summary><ul><li>Institution:<code>VIT University</code></li><li>Domain:<code>vit.ac.in</code></li><li>identifier:<code>nikhil.pandita2014</code></li></ul></details></details></details></body></html>
