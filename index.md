@@ -1,7 +1,7 @@
 #### `#et7952` [»](index0.md) 
 
 
-<details>💶<details><summary>🤑</summary>📧💌📮📩💸💴💷💰💳💎⚡️🤖💱💲💹</details></details>
+<details>💶<summary>🤑</summary>📧💌📮📩💸💴💷💰💳💎⚡️🤖💱💲💹</details>
 <hr><font size='1'><b>Nevermind errors or inconsistence: It breeds sense.</b><br>... && this is not a place for tourists. It hosts nuclear garbage. Bye™, xoxo !</font>
 
 
@@ -84,5 +84,4 @@ fA==
 =d0MW
 </code></li></li><li>Domain:<code>pm.me [or,and] protonmail.com</code></li><li>identifier:<code>1by0</code></li></ul>
     </details><details>
-       <summary>University eMail</summary><ul><li>Institution:<code>VIT University</code></li><li>Domain:<code>vit.ac.in</code></li><li>identifier:<code>nikhil.pandita2014</code></li></ul>
-    </details></details></body></html>
+       <summary>University eMail</summary><ul><li>Institution:<code>VIT University</code></li><li>Domain:<code>vit.ac.in</code></li><li>identifier:<code>nikhil.pandita2014</code></li></ul></details></details></details></body></html>
