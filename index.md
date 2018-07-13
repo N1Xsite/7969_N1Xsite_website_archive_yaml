@@ -85,4 +85,5 @@ fA==
 
 </code></li><li>Domain:<code>pm.me [or,and] protonmail.com</code></li><li>identifier:<code>1by0</code></li></ul>
     </details><details>
-       <summary>University eMail</summary><ul><li>Institution:<code>VIT University</code></li><li>Domain:<code>vit.ac.in</code></li><li>identifier:<code>nikhil.pandita2014</code></li></ul></details></details></details></body></html>
+       <summary>University eMail</summary><ul><li>Institution:<code>VIT University</code></li><li>Domain:<code>vit.ac.in</code></li><li>identifier:<code>nikhil.pandita2014</code></li></ul></details></details></details></body><label for="check" class="lights">Watch TrueColours</label>
+<input type="checkbox" id="check" /><link rel="stylesheet" href="7965_01.css"></html>
